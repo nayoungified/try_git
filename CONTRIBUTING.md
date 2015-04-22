@@ -1,1 +1,1 @@
-nrim
+Nayoung Rim
